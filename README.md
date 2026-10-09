@@ -1,0 +1,2 @@
+# premium-scagliola-001-scagliola-marble-imitation-gui
+Struggling to master scagliola techniques without expensive in-person training or endless trial-and-error? The Scagliola Marble Imitation Guide cuts through the confusion with a structured, step-by-step Notion template that demystifies this centuries-old craft.  This guide transforms scagliola from an intimidating, gatekept skill into an achievable
